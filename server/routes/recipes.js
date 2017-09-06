@@ -1,1 +1,0 @@
-by tomorrow i would have underst
